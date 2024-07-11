@@ -1,7 +1,6 @@
 Hai~!! C+H
 Introverted - But You can Approach me if You want!
-You can Sit beside me Even if I am afk I don't Mind
-I'll be in LoL or jjk area as per usual.
+You can Sit beside me Even if I am afk I don't Mind Usually by the Fence bellow LoL area
 
 BASIC DNI 
 Minor, proshipper, Homophobic
